@@ -6,4 +6,4 @@
 ### PDF
 #### [KLIK DISINI](https://drive.google.com/open?id=1LyugPrgvhoW95-2T8UoMqsFEbHFwz72o&authuser=0&usp=drive_link)
 ### YOUTUBE
-#### [KLIK DISINI]()
+#### [KLIK DISINI](https://youtu.be/pTdV2U0DUS0)
